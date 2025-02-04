@@ -1,4 +1,4 @@
-# 100-Free-Amazon-Gift-Card-2025
+# 100$-Free-Amazon-Gift-Card-2025
 Who doesn’t love free Amazon gift cards? Whether you’re looking to shop for the latest gadgets, fashion, home essentials, or even groceries, an Amazon gift card is like digital cash you can spend on anything. The best part? You can get a free Amazon gift card today by following simple methods that require little to no effort.
 
 In this guide, we’ll show you the easiest and most effective ways to claim your free Amazon gift card and maximize your savings.
